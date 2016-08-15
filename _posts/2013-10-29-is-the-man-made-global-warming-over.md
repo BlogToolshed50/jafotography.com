@@ -1,0 +1,16 @@
+---
+id: 1692
+title: Is the Man-made Global Warming Over?
+date: 2013-10-29T04:53:00+00:00
+author: admin
+layout: post
+guid: http://www.jafotography.com/?p=1692
+permalink: /2013/10/29/is-the-man-made-global-warming-over/
+categories:
+  - General
+---
+Al Gore and most of the mainstream media seems to think the debate is over, less than ten experts who questioned man-made climate change from many scientific observations made it on the networks while over thirty experts who are in favor of man-made climate change were on network TV. Government funding hasn&#8217;t helped the Global Warming debate either as it gives funding to only those who are &#8220;politically correct&#8221; on the issue. Some business have funded some research but are generally shunned by most major media outlets as being the corrupted big business who wants to make money rather than saving the earth. There are many pleas for a serious debate, one of which is the founder of the Weather Channel who wants to sue Al Gore for fraud on man-made Global Warming. He says his intent is to &#8220;settle the global warming debate once and for all.&#8221; However, it&#8217;s highly unlikely the issue would be solved even if Al Gore lost the debate. More than likely Al Gore will not debate at all but only promote his position&#8230;The question remains, is the debate about man-made Global Warming over? I don&#8217;t think so, there are many questions and observations that cast serious doubt on the issue. Let&#8217;s take a look at a few of them&#8230;
+
+What about the fossil fuels issue? Well before man started to burn those types of fuels, there was 38 particles per 100,000 in the atmosphere. From the start of the industrial age till now it&#8217;s has about doubled in contribution of CO2, perhaps a bit more. But it still represents just a tiny fraction compared to the many other elements causing such fossil fuels. Basically only 8 percent of CO2 is produced by man while 92 percent is caused by the Earth. So with this very little contribution outside the regular functions of the earth, how could it affect the earth&#8217;s weather to change? Computer models are generally the answer to that question. Fed by man-made formulas, these computer models make a prediction on the impact of the earth&#8217;s weather. These predictions at least the majority of them in different degrees or another have an outcome of warming caused by man. Of course man&#8217;s lack of understanding of ever changing complex weather system hurts these models. Things in various degrees are not included and a distinction from historical warming and cooling compared to man&#8217;s contribution is not factored in either nor detected. Also, at times these computer models are so much at odds with each other&#8217;s outcome it really takes a lot of imagination to come to any conclusions with them.
+
+It would be a mistake to make a policy over this and spend billions upon billions of dollars to try and stop something only God can do. In my opinion, there is room for debate, the media should allow more scientists who question man-made global warming on when they discuss the issue. Also the government should give grants to those scientists who question man-made climate change. The debate of global warming isn&#8217;t over, the debate to show the other side is just beginning.

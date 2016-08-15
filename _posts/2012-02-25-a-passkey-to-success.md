@@ -1,0 +1,14 @@
+---
+id: 1265
+title: A Passkey To Success
+date: 2012-02-25T01:47:00+00:00
+author: admin
+layout: post
+guid: http://www.jafotography.com/2012/02/25/a-passkey-to-success/
+permalink: /2012/02/25/a-passkey-to-success/
+categories:
+  - General
+---
+Have you ever known someone who always seemed to get what they wanted? Maybe it was that guy at work who went from visionary cubicle working stiff to powerful corner office head honcho in a short interval of time. Or your fair haired high school classmate with the glimmer in her eye, who made getting straight A&#8217;s &#8220;and being caption of the women soccer team look like a cake walk. Their cups always seem to overflow and others marveled at their accomplishments. Never did we hear them complain or worry (out loud for that matter). They always expected the best to happen and it did. Even when bad times fell on them, them always stayed in good spirits and like clockwork everything that they seemed to have lost was restored back and then some. And many onlookers were left wondering how they did it (and how to get their magic potion). Quite simply, the working stiff and the fair haired classmate probably believed they deserved to see their dreams become reality, and that the best that life had to offer was theirs. And, it was not a matter of being connected and knowing the &#8220;right&#8221; person, there was one defining pattern to these people, it was their attitude. Fortunately this can also be true for all of us.
+
+We all live with an unconscious expectation of ourselves and our own lives. This expectation not only determines what we have in our lives but it also represents what we are willing to settle for. Expectation is a very powerful outlook and one that very few people ever learn to fully cultivate. Whatever you expect with certainty is what you will get in your life. Expectation is the intrinsic place where an idea becomes so real that you feel it even though you can&#8217;t hold it yet. Expectation is like an invisible magnet that will attract into your life that which you expect. When you expect something you activate and engage those parts of your mind and your nervous system that can empower you to think the unthinkable and do the undo-able. Whatever thoughts you constantly feed your mind through out the day, your subconscious mind is taking it in. And it does not discriminate between the good thoughts or the bad thoughts, it takes it all in! What you earn right now is what you expect to earn. The amount of free time you have right now is what you expect to have as free time. The relationships you have are what you expect to have.
